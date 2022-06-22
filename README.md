@@ -6,6 +6,12 @@ Author: Shafaet Ashraf
 Shafaet.csedu@gmail.com
 
 
+***Hi vai ki opstha, ami Shafayet***
+Mita dekhi software engineer o same same lol
+
+
+
+
 ***BASIC SUBROUTINES***
 ------------
 
